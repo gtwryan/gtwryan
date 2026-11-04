@@ -1,10 +1,14 @@
 ## "Well hello there!"
 
+<img width="567" height="40" alt="image" src="https://github.com/user-attachments/assets/4127e916-3ba0-4995-8c60-8d0207092cda" />
+
+
 "we survived.."
 
 <img width="496" height="573" alt="image" src="https://github.com/user-attachments/assets/a1503a08-90c1-448b-9f92-604280e34b26" />
 
-<img width="640" height="263" alt="image" src="https://github.com/user-attachments/assets/e6b7d666-4cd1-4ebb-a74e-d1c7749decf6" />
+<img width="567" height="40" alt="image" src="https://github.com/user-attachments/assets/95c08f0b-2fc0-4ca0-a45f-a2e783ab73a5" />
+
 
 Hi! We're Frequency but we also go by alter names,feel free to ask whose fronting!
 He/It but preferably ask- if we dont know whose fronting we user We/Our/Us ect-
