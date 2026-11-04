@@ -1,6 +1,5 @@
 ## "Well hello there!"
 
-<img width="640" height="263" alt="image" src="https://github.com/user-attachments/assets/e6b7d666-4cd1-4ebb-a74e-d1c7749decf6" />
 "we survived.."
 
 <img width="496" height="573" alt="image" src="https://github.com/user-attachments/assets/a1503a08-90c1-448b-9f92-604280e34b26" />
